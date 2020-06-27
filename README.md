@@ -13,6 +13,7 @@ Materials for Organization for Human Brain Mapping 2020
 
 * Or attend the ORAL SESSION: Higher Cognitive Functions: Mental representations and Imagery	
   * Friday June 26 - Saturday June 27:  19.00H - New York; 24:00H - London; 07.00H +1d - Hong Kong
+  * [Recording of the talk](https://www.youtube.com/watch?v=u17G4ZTxJpA)
 	
 * CONTACT: jrieck[at]research[dot]bayrest[dot]org
 	
